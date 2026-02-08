@@ -1,3 +1,3 @@
 https://kah1122.github.io/Property-Path-Comparison-INI/
 
-#100% AI MAKE
+*100% AI MAKE*
